@@ -19,3 +19,19 @@
 8. Leve ao forno por aproximadamente 35 a 45 minutos.
 9. Faça o teste do palito: se sair limpo, o bolo está pronto.
 10. Retire do forno, deixe esfriar e sirva.
+
+## Cobertura de Chocolate
+
+### Ingredientes
+- 4 colheres de sopa de chocolate em pó
+- 2 colheres de sopa de açúcar
+- 1 colher de sopa de manteiga
+- 4 colheres de sopa de leite
+
+### Modo de preparo
+1. Coloque todos os ingredientes em uma panela.
+2. Misture bem antes de levar ao fogo.
+3. Leve ao fogo médio, mexendo sempre.
+4. Cozinhe até a mistura engrossar levemente.
+5. Desligue o fogo e despeje a cobertura sobre o bolo de cenoura.
+6. Espere esfriar um pouco e sirva.
